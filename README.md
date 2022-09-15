@@ -1,1 +1,0 @@
-# programmerwhale.github.io
